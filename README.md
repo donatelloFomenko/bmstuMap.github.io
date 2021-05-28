@@ -1,0 +1,1 @@
+# bmstuMap.github.io
